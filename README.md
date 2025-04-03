@@ -1,0 +1,1 @@
+# static-spot.github.io
